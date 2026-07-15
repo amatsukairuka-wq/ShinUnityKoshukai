@@ -1,0 +1,2 @@
+# aaaaaaaaaaa　AmatsukaIruka.com
+## ようこそしんゆにてぃこうしゅうかいえ
